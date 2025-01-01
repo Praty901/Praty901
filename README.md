@@ -16,3 +16,5 @@ I’m looking for opportunities to collaborate on projects related to **Cyber Se
 
 ## 📫 How to reach me...
 Feel free to reach out to me via GitHub or email for collaborations, discussions, or any project inquiries!
+
+praty901@gmail.com
